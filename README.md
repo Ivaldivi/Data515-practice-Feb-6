@@ -10,4 +10,4 @@ KITTYYYY
 
 
 doggyyyyyy
-![homophobic dog](https://www.google.com/url?sa=i&url=https%3A%2F%2Fgiphy.com%2Fexplore%2Fwhat-animal&psig=AOvVaw0v_S53uYpcMzYnYbnV_Ou_&ust=1738983662357000&source=images&cd=vfe&opi=89978449&ved=0CBMQjRxqFwoTCLDE7o3JsIsDFQAAAAAdAAAAABAJ)
+![homophobic dog](https://media3.giphy.com/media/gKHGnB1ml0moQdjhEJ/200w.gif?cid=6c09b952clr5j7b5q1lq8nc5rkqrfuuxzexgputtex0j14aq&ep=v1_gifs_search&rid=200w.gif&ct=g)
