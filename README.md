@@ -21,5 +21,11 @@ doggyyyyyy
 when you learn new things about git:\
 ![](https://wp.usatodaysports.com/wp-content/uploads/sites/90/2016/11/200-7.gif)
 
+
+me after izzy inspires me to learn how to knit and i make myself a beanie:\
+![](https://media.tenor.com/rlPAPvzDXegAAAAM/dealwifit-dogwifhat.gif)
+
+you after i make you a beanie to say thank you for getting me motivated to knit:\
+![](https://media.tenor.com/ZhJ3ZP80ohAAAAAM/penguin-dancing.gif)
 <br></br>
 ahhhhhhhhhhhhh
